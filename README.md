@@ -7,6 +7,6 @@ Change the world!
 
 　
 
-**//The leafwareᶜˡᵘᵇ belongs to me (aka 末茶９８ ／ matcha98 ／ matcha98qx) - do not use it without my explicit permission;**
+**//The leafwareᶜˡᵘᵇ logo belongs to me (aka 末茶９８ ／ matcha98 ／ matcha98qx) - do not use it without my explicit permission;**
 
 **//everything else you are free to use**
